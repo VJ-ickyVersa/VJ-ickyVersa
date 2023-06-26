@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VJ-ickyVersa
-- 👀 I’m interested in my project group, we reached: sublime-level! 
+- 👀 I’m interested in my project group, we reached: sublime-level! Pretty objective professionals :)
 - 🌱 I’m currently rehearsing for my cabaret show, has been a while... Also creating a new font.
 - 💞️ I’m looking to collaborate on sound engineering  
 - 📫 How to reach me: I never underestimated anyone! 
